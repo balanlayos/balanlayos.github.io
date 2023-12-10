@@ -23,7 +23,7 @@ TikTok: enhypen
 Weverse: ENHYPEN
 Weibo: ENHYPEN 官方微博
 
-<iframe width="560" height="315" src="https://youtu.be/py4wrbHXbyk?si=MNNzoi8Ofe1u4U71" title="Introduction to Enhypen !" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+"https://youtu.be/py4wrbHXbyk?si=MNNzoi8Ofe1u4U71"
 
 ### Schedule of Concerts !
 | January 2024 | Febuary 2024 | 
