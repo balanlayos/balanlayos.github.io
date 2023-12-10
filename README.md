@@ -71,6 +71,9 @@ Representative Emoticon: 🐹/ 🦌
 Mic. Color: Red
 
 
+꒷︶ ̇ ̟ ෆ ‿︵‿୨♡୧‿︵‿ ෆ ̟ ̇ ︶꒷
+
+
 **PARK JONGSEONG 🦅**
 ![Facade](https://i.pinimg.com/564x/41/34/1b/41341b1d167081c8f7dc0ddbd2f2998a.jpg "Park Jongseong")
 Stage Name: Jay (제이)
@@ -87,6 +90,9 @@ MBTI: INTP (His previous results were INTP -> INFJ -> ENFJ -> ENTP ->ENFP)
 Nationality: Korean-American
 Representative Emoticon: 🦅/ 🐈‍⬛
 Mic. Color: Green
+
+
+꒷︶ ̇ ̟ ෆ ‿︵‿୨♡୧‿︵‿ ෆ ̟ ̇ ︶꒷
 
 
 **SIM JAEYUN 🐶**
@@ -107,6 +113,9 @@ Representative Emoticon: 🐶
 Mic. Color: Blue
 
 
+꒷︶ ̇ ̟ ෆ ‿︵‿୨♡୧‿︵‿ ෆ ̟ ̇ ︶꒷
+
+
 **PARK SUNGHOON 🐧**
 ![Facade](https://i.pinimg.com/564x/f2/bb/a0/f2bba056b076ce0f10f642717cc37d48.jpg "Park Sunghoon")
 Stage Name: Sunghoon (성훈)
@@ -124,6 +133,9 @@ Representative Emoticon: 🐧
 Mic. Color: White
 
 
+꒷︶ ̇ ̟ ෆ ‿︵‿୨♡୧‿︵‿ ෆ ̟ ̇ ︶꒷
+
+
 **KIM SUNOO 🦊**
 ![Facade](https://i.pinimg.com/564x/1c/cc/14/1ccc14cd41e4698f70a73ab1b18aa5fb.jpg "Kim Sunoo")
 Stage Name: Sunoo (선우)
@@ -139,6 +151,9 @@ MBTI: ENFP
 Nationality: Korean
 Representative Emoticon: 🦊
 Mic. Color: Purple
+
+
+꒷︶ ̇ ̟ ෆ ‿︵‿୨♡୧‿︵‿ ෆ ̟ ̇ ︶꒷
 
 
 **NISHIMURA RIKI 🐥**
